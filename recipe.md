@@ -1,0 +1,1 @@
+boil milk,add choco powder to the milk ,stir ,knead the flour ,put the dough in a mould , cover it with the choco milk mixed ,bake,the cake will be ready
